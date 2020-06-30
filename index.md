@@ -12,4 +12,4 @@ Und bei den schlechten würde ich noch bis morgen schreiben. Dehalb ist hier Sch
 
 Ingo glaubt:
 
-> Werder steigt nie ab
+> Werder steigt niemals ab
