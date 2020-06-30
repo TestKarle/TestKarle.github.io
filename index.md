@@ -9,3 +9,8 @@ Und bei den schlechten würde ich noch bis morgen schreiben. Dehalb ist hier Sch
 * trinkt gern Bier
 * fährt schnell Auto
 * lässt gern arbeiten
+
+Ingo glaubt:
+
+> Werder steigt nie ab
+> E-Bike ist besser
